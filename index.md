@@ -1,5 +1,4 @@
-Here you can say lots of fun things about your site.
+This blog is a medium to let out all my unhinged thoughts and guilty pleasures.  
+Stick around if you're free enough to read this. If not, that's still fine lol
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+(This is also a fuck-you to everyone who held me back from posting stuff by making me feel like they're too performative, girly or whatever other shit their sigma male mindset tells them)
